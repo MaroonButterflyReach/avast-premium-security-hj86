@@ -1,4 +1,4 @@
-# 
+# elite Bitdefender Total Security para PC scripts é o melhor Bitdefender Total Security para PC scripts com protecao contra ransomware e sandboxing. Seguro, confiável e otimizado
 
 
 
